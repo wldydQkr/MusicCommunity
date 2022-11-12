@@ -1,1 +1,1 @@
-# MusicComunity
+# MusicCommunity
